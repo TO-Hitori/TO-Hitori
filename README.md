@@ -1,5 +1,10 @@
 ### Hi there 👋
 
+- ONE! DON'T SHIRK WORK!
+- TWO! RUN AWAY AND PAY!
+- THREE! SMILES GO FOR MILES!
+
+
 <!--
 **TO-Hitori/TO-Hitori** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
